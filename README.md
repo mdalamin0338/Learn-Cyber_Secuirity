@@ -1,2 +1,2 @@
 # Learn-Cyber_Secuirity
-Hi! I am a student Of Cyber Secuirity 
+Hi! I am a student of cybersecurity 
